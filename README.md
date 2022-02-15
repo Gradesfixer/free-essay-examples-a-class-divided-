@@ -1,2 +1,3 @@
-# free-essay-examples-a-class-divided-
-Absolutely FREE essays on A Class Divided. All examples of topics, summaries were provided by straight-A students. ✍ Get an idea for your paper
+<h1>The importance of the class divide</h1>
+
+A recent University of Pennsylvania study found that a person's brain's response to words is influenced by his or her social class. The study, the results of which were published in the journal Nature Neuroscience, found that people from lower socioeconomic backgrounds respond more strongly to words related to their environment. This is because they are more likely to encounter such words on a daily basis. Likewise, the website with free essay examples https://gradesfixer.com/free-essay-examples/a-class-divided/ also suggests that, in contrast, people from higher socioeconomic backgrounds respond more strongly to words related to education and politics because they are more likely to encounter these topics.
